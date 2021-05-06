@@ -1,1 +1,2 @@
-# C33-Proj
+
+## Plink...bt with scores!!! :D
