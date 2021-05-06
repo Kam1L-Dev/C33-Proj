@@ -1,2 +1,2 @@
 
-## Plink...bt with scores!!! :D
+## Plinko...but with scores!!! :D
